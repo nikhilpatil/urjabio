@@ -1,22 +1,16 @@
 ---
-title: "What is Urja Bio?"
+title: "Who are we?"
 weight: 1
 header_menu: true
 -------
 
-Chicken Farmers of Urja operate on the principle that good corporate governance is a key driver of the industry’s business strategy. This belief is deeply embedded in the core values of the organization and underpins all decisions and actions taken by the Board.  The founders are highly engaged, experienced and committed to continuously improving the strength and effectiveness of its corporate governance in order to support the strategic goals of the organization while meeting all applicable regulatory and legal requirements.
+Urja bio is a subsidary of Urja Feeds and Agro Pvt. Ltd. which deals exclusively with organic produce.
 
-The odyssey of Urja started with a cattle feed manufacturing unit in the year 2005, from the farm-background family of Mr. Pramod Anandrao Hinge with aspirations to improvise a stable financial income for farmers in remote rural areas and to provide employment opportunities in rural areas which are in accordance to agriculture segment. Mr. Pramod Hinge founded Urja Foods And Agro Pvt. Ltd. On the 16th of December, 2015 at Manchar, Pune.  We pioneered in the poultry integration business with the vision of being an affluent protein-delivery organization.
+We support and promote organic farmers and manufacturers by selling their valuable products as it is in the interests of all of us that chemical pesticides, artificial fertilizers, genetic engineering and the massive use of antibiotics in animal husbandry should be avoided. We judge all our activities and projects according to whether they are compatible with humans and the earth.
 
-After a microlevel research of large-scale dairy and poultry business in rural areas, Urja foods set up self-reliant Feed Mill on 16th December, 2005 in Nirgudsar, Pune. Our goal is to provide nutritious food and supplement intake for cows and livestock poultry birds of the farmers for healthy beings and to increase productivity. In a very short duration of time, Urja foods has managed to earn the trust of farmers. We believe that if we provide good quality feed it exponentially increases farmer production. The company consistently focuses on doing business on the basis of quality. Currently, Urja Foods is producing more products for Cattle and various poultry birds with current distributions from Nirgudsar, Pune.
+<!--- Diversity in nature and agriculture are the basis of all life. Against the background of climate change and millions of endangered animal and plant species, this vision is more important than ever for an intact ecosystem. -->
 
-Contract broiler farming is Urja’s core business and operating from owned branches in Pune district in west Maharashtra. Presently, we are operating of broiler farming well efficiently with established own systems with the support of efficient and well-trained manpower to assure quality chicken production. Urja is one of the companies who provide antibiotic free, fresh, tasty, juicy and hygienic chicken to customers. The aim of Urja is Products and services consistent with standards that merit total customer satisfaction at optimum cost. Which is preferred by Pune and Mumbai broiler market. As well we also to improve rural per capita chicken consumption with help of NGO HP Trust.
+For this reason, it is crucial that we put people and nature at the center of our thoughts and actions instead of pure economic interests.
 
-Urja works on own core values. And our core value has taught us “Continuous Innovation”. Hence, we for the first time in Maharashtra Urja established 100% European EC House and were successful to run our own Environmental controlled sheds. Urja claimed the High-tech automation, ventilation and temperature control system give the excellent results in modern poultry farming. We are expanding our EC houses every year to provide Antibiotic free chicken to our customers.
 
-Contract broiler farming is the main business of Urja. This business is depending on high quality chicks and feed. In view of provision of in-house resources required for the assurance of quality and quantity we started independent broiler breeder unit of laying which fulfill our monthly requirement of quality Hatching Eggs.
 
-We have well maintained hatchery unit with capacity to produce hygienic chicks. We use auto vaccination system in our hatchery. Which resulting low mortality ratio. Urja Hatchery always work on chicken’s quality improvement. To cater these chickens and birds we established 150 TPD pellet feed plant which is fully automated and computerized. In addition, for premix purpose we have independent premix plant of 40 TPD where we produce quantity maintaining required quality. Also, in December 2020 we introduce our new state of art Feed Mill first time with updated new technology having capacity of 400 TPD with provision of more 400 TPD in future.
-
-Till date, Urja can proudly mention that it has provided employment in rural area to more than 300 direct and indirect workers, 650 poultry farmers, 250 broiler wholesalers and 3000 people directly and indirectly involved in poultry business.  
-Stepping into the glorious journey in 2021, there has been no looking back. Ambitious vision, strong dedication, prudent strategy and productive people have enabled the company to accomplish milestones after milestones. From poultry Farms to own EC Farms and EC Farms to direct customer. The company has accomplished a majestic journey, which is going on with vigor and ambition.
